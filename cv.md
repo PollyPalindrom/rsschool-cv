@@ -1,5 +1,5 @@
 # Polina Ahrameiko
-## Contact info:##
+## Contact info: ##
 > * Telephone: +375(29)877-36-83
 > * VK: https://vk.com/polinarius_ordinarius
 ## Skills: ##
